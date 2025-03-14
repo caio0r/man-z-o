@@ -5,4 +5,4 @@ presta atenção mano lembra de deslogar as parada dos lugares
 
 ###você deixou sua senha SALVA no computador da faculdade, vou apagar tmb
 
-(https://i.pinimg.com/originals/d0/1b/ed/d01bede6ec5f2b7ba7f9333ab2c9036a.jpg)
+!(https://i.pinimg.com/originals/d0/1b/ed/d01bede6ec5f2b7ba7f9333ab2c9036a.jpg)
